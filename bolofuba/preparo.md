@@ -1,0 +1,1 @@
+* junte tudo, bata tudo, bota no forno depois tira
