@@ -1,0 +1,1 @@
+* pega o arroz e enfia no forno
